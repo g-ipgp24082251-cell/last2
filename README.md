@@ -1,0 +1,2 @@
+# last2
+JOM KENALI VOKAL
